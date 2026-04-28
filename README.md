@@ -1,5 +1,4 @@
 
-🟪🟪🟪🟪🟪🟪🟪🟪🟪🟪🟪🟪🟪🟪🟪🟪🟪🟪
 
 # ♐ Colorverse Website ♐ 
 
